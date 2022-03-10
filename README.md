@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil da Maryh-imnida �
+## Bem-vindo(a) ao perfil da Maryh 
 
  <div>
   <a href="https://github.com/Maryh-imnida">
